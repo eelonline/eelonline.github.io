@@ -1,1 +1,0 @@
-welcome to page 2 if u are here then dis workies boi so i created dis for github app and www.eelonline.us so..... i can do sterf
